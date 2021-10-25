@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @TriX
 - 👀 I’m interested in Ethical Hacking
 - 🌱 I’m currently learning Python and Kali Linux
-- 📫 How to reach me dc:TriX#6626
+- 📫 How to reach me my disc:TriX#6626
